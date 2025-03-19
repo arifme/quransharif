@@ -1,0 +1,2 @@
+# quransharif
+q.co.sc
